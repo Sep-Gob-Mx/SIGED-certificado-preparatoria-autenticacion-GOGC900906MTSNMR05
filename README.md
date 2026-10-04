@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GOGC900906MTSNMR05
+GOGC900906MTSNMR05
